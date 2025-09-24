@@ -21,3 +21,7 @@ Ezr7drMP
 
 ・入力欄に入力する情報が見当たらない場合は空白のまま進めてください
 
+https://input.vlog.jp/
+
+t4ch7@vlog.jp
+Ezr7drMP
